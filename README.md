@@ -2,7 +2,7 @@
    
     I’m interested in finding new Discord friends to talk to and play games with
    
-    Pronouns:  They/Them
+    Pronouns: They/Them
 
     age: 24
 
