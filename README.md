@@ -4,7 +4,7 @@
    
     Pronouns: They/Them
 
-    age: 25
+    age: 26
 
     I'm an Aquarius and my personality is INFP
 
